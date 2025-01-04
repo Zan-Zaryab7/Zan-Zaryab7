@@ -16,7 +16,7 @@
 
 ### Get in Touch  
 - 📫 Reach me at: **[zanzaryab8@gmail.com](mailto:zanzaryab8@gmail.com)**  
-- 💬 Let’s connect on **[LinkedIn](https://www.linkedin.com/in/zaryabahmed)** or follow my work on **[GitHub](https://github.com/Zan-Zaryab7)**.  
+- 💬 Follow my work on **[GitHub](https://github.com/Zan-Zaryab7)**.  
 
 ### Fun Facts  
 - 😄 Pronouns: **He/Him**  
